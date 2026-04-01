@@ -14,7 +14,6 @@ https://github.com/user-attachments/assets/da8ac5a0-3282-4ce4-96ae-582f3b3b54aa
 
 ---
 
-> ☢️ ⚠️ ☠️ RUN ON RDP ☠️ ⚠️ ☢️
 
 ## Instructions
 
